@@ -1,2 +1,1 @@
-The tutorials related things are written in ipad !!
-testing git commit
+The tutorials related script are written in ipad !!
