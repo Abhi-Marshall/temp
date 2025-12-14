@@ -6,7 +6,7 @@ mainu pata hai tu dedega jaan
 
 
 Okay sir will learn this song and perform 👌👌
-
+remote
 - Edited at local -
 
 - Edited at remote -
